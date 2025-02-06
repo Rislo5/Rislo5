@@ -15,7 +15,7 @@
 
 💬 Ask me about anything related to my project or learning journey.
 
-📫 How to reach me: loris.p@students.opit.com   
+📫 How to reach me: loris.p@students.opit.com   | pisanolorisjob@gmail.com
 📫 Linkedin: https://www.linkedin.com/in/lorispisano5/.
 
 
