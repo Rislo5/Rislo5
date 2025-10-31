@@ -5,22 +5,15 @@
 
 
 
---> 🔭 I’m currently working on my project.
+--> 🔭 Try to work on my project.
 
-🌱 I’m currently learning the basics of programmin.
 
-👯 I’m looking to collaborate on my project.
 
 🤔 I’m looking for help with the development.
-
 💬 Ask me about anything related to my project or learning journey.
 
 📫 How to reach me: pisanolorisjob@gmail.com
 📫 Linkedin: https: //www.linkedin.com/in/lorispisano5/.
-
-
-
-😄 Pronouns: He/Him.
 
 ⚡ Fun fact: I love music, art and writing poetry, I love being in contact with nature 
 
