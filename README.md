@@ -8,13 +8,14 @@
 --> 🔭 Try to work on my project.
 
 
-
 🤔 I’m looking for help with the development.
-💬 Ask me about anything related to my project or learning journey.
+
+💬 Ask me about anything related to my project 
+
 
 📫 How to reach me: pisanolorisjob@gmail.com
 📫 Linkedin: https: //www.linkedin.com/in/lorispisano5/.
-
 ⚡ Fun fact: I love music, art and writing poetry, I love being in contact with nature 
+
 
 Feel free to connect with me and explore my repositories. I'm always open to feedback and collaboration!
